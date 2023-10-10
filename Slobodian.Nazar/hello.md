@@ -1,1 +1,1 @@
-Slobodian.Murina.Shypka.Nazarii.Mariia.Nazar
+Slobodian.Murina.Shypka.Shribak.Bohdan.Nazarii.Mariia.Nazar
