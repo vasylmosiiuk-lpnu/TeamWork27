@@ -1,4 +1,3 @@
 feature/HelloMdModifyMurinaMariia
-Murina.Slobodian.Nazar.Mariia 
-Murina.Chychuk.Bohdan.Mariia 
+Murina.Slobodian.Chychuk.Bohdan.Nazar.Mariia
 main
