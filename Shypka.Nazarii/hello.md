@@ -1,2 +1,2 @@
-Shypka.Nazarii
+Shypka.Slobodian.Nazar.Nazarii
 
