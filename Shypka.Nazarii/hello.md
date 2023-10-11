@@ -1,2 +1,1 @@
-Shypka.Tymniak.Mykhailo.Nazarii
-
+Shypka.Murina.Slobodian.Tymniak.Mykhailo.Nazar.Mariia.Nazarii
