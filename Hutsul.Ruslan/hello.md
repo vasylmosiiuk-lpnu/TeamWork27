@@ -1,1 +1,1 @@
-Hutsul.Ruslan
+Hutsul.Yadchyshyn.Ivan.Ruslan
