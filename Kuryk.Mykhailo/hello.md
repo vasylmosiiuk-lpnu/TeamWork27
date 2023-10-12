@@ -1,1 +1,2 @@
-Kuryk.Stashenko.Vlad.Mykhailo
+Kuryk.Shestak.Stashenko.Vlad.Illia.Mykhailo
+
