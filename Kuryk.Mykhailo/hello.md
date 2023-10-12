@@ -1,1 +1,1 @@
-Kuryk.Mykhailo
+Kuryk.Stashenko.Vlad.Mykhailo
