@@ -1,1 +1,1 @@
-Shribak.Yadchyshyn.Ivan.Bohdan
+Shribak.Chychuk.Slobodian.Yadchyshyn.Ivan.Nazar.Bohdan.Bohdan
