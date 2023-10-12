@@ -1,1 +1,1 @@
-Hutsul.Tymniak.Mykhailo.Ruslan
+Hutsul.Tymniak.Yadchyshyn.Ivan.Mykhailo.Ruslan
