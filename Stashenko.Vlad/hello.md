@@ -1,1 +1,1 @@
-Stashenko.Hutsul.Ruslan.Vlad
+Stashenko.Shypka.Hutsul.Ruslan.Nazarii.Vlad
