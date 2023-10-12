@@ -1,1 +1,1 @@
-Hutsul.Danchak.Anastasiia.Ruslan
+Hutsul.Tymniak.Yadchyshyn.Danchak.Anastasiia.Ivan.Mykhailo.Ruslan
