@@ -1,1 +1,1 @@
-Dudchenko.Dmytro
+Dudchenko.Kuryk.Mykhailo.Dmytro
