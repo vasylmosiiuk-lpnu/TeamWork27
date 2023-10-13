@@ -1,1 +1,1 @@
-Yadchyshyn.Stashenko.Vlad.Ivan
+Yadchyshyn.Ponomar.Kuryk.Stashenko.Vlad.Mykhailo.Kostiantyn.Ivan
