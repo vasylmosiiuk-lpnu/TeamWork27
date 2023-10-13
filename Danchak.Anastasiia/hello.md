@@ -1,2 +1,1 @@
-Danchak.Tymniak.Hutsul.Stashenko.Vlad.Ruslan.Mykhailo.Anastasiia
-
+Danchak.Tymniak.Hutsul.Stashenko.Shchepaniak.Nazar.Vlad.Ruslan.Mykhailo.Anastasiia
