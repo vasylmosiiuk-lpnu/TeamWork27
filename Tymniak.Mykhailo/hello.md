@@ -1,1 +1,1 @@
-Tymniak.Shypka.Hutsul.Ruslan.Nazarii.Mykhailo
+Tymniak.Shypka.Hutsul.Danchak.Anastasiia.Ruslan.Nazarii.Mykhailo
