@@ -1,1 +1,1 @@
-Shchepaniak.Shestak.Ponomar.Kostiantyn.Illia.Nazar
+Shchepaniak.Shestak.Ponomar.Dzavoruk.Andriy.Kostiantyn.Illia.Nazar
