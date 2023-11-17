@@ -1,1 +1,1 @@
-Zvarychuk.Dudchenko.Dzavotuk.Andriy.Dmytro.Oleksandr
+Zvarychuk.Dudchenko.Dzavoruk.Andriy.Dmytro.Oleksandr
