@@ -1,2 +1,1 @@
-Shestak.Yadchyshyn.Kuryk.Mykhailo.Ivan.Illia
-
+Shestak.Yadchyshyn.Kuryk.Ponomar.Kostiantyn.Mykhailo.Ivan.Illia
